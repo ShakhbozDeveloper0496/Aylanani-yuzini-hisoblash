@@ -1,0 +1,1 @@
+# Aylanani-yuzini-hisoblash
